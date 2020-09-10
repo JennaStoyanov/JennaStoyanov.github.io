@@ -1,2 +1,0 @@
-# JennaStoyanov.github.io
-Portfolio
